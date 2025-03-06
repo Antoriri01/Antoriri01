@@ -1,3 +1,6 @@
+`--'--' ! 0 1 2 5
+Welcome to my github !!
+
 More info on my strawpage!!
 
 MANGEY AND SAILS FANS INT PLS PLS PLS :sob::sob:
